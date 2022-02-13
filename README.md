@@ -5,5 +5,6 @@
 - 🌱 Non stop learning
 - 👯 Looking to collaborate on challenging projects
 - 💬 Ask me about anything
+- :smile: Fun Fact: In this Word Cloud you can find some of my skills!
 
 
